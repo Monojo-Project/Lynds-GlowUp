@@ -1,4 +1,4 @@
-# Lynds-GlowUp
+# Lynds GlowUp
 
 Bro, tú también puedes tener ese Glow Up 🗿
 
